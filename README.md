@@ -13,4 +13,4 @@ the roof woods in some parts were rotten.
 
 The photographs cover the projects phases
 
-![roof photo 1] (https://raw.githubusercontent.com/chertouras/roofrepair/master/WP_20170619_11_48_25_Pro.jpg)
+![roof photo 1](https://raw.githubusercontent.com/chertouras/roofrepair/master/WP_20170619_11_48_25_Pro.jpg)
