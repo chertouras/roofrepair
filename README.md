@@ -18,4 +18,38 @@ Photo 1: The initial view of the roof.
 
 
 Photo 2: Problem revealed. 
-![roof photo 1](https://github.com/chertouras/roofrepair/blob/master/WP_20170619_12_28_36_Pro.jpg?raw=true)
+![roof photo 2](https://github.com/chertouras/roofrepair/blob/master/WP_20170619_12_28_36_Pro.jpg?raw=true)
+
+
+Photo 3: Removing the rotten wood pieces. The beton plate in revealed.
+![roof photo 3](https://github.com/chertouras/roofrepair/blob/master/WP_20170619_17_20_08_Pro.jpg?raw=true)
+
+Photo 4: A chemical insulation in the form of waterproofing PU coating was applied to close the small cement cracks.
+![roof photo 4](https://github.com/chertouras/roofrepair/blob/master/WP_20170620_13_35_57_Pro.jpg?raw=true)
+
+Photo 5: New russian wood preparation to fit the square hole created after the rotten part removal.
+![roof photo 5](https://github.com/chertouras/roofrepair/blob/master/WP_20170623_12_14_28_Pro.jpg?raw=true)
+
+Photo 6: After moving the pieces to the roof (difficult for one person only) the assembly started.
+![roof photo 6](https://github.com/chertouras/roofrepair/blob/master/WP_20170623_12_32_44_Pro.jpg?raw=true)
+
+Photo 7: Finished wood work. Several layers of PU silicone applied to cover the wood joined parts.
+![roof photo 7](https://github.com/chertouras/roofrepair/blob/master/WP_20170623_13_24_39_Pro.jpg)
+
+Photo 8: Asphaltic fabric applied at first layer
+![roof photo 8](https://github.com/chertouras/roofrepair/blob/master/WP_20170623_13_45_00_Pro.jpg?raw=true)
+
+Photo 9: Near the end of the project.
+![roof photo 9](https://github.com/chertouras/roofrepair/blob/master/WP_20170624_09_08_20_Pro%20(2).jpg?raw=true)
+
+Photo 10: Near the end of the project.
+![roof photo 10](https://github.com/chertouras/roofrepair/blob/master/WP_20170624_09_26_12_Pro%20(2).jpg?raw=true)
+
+
+Photo 11: Finished work. Total time to finish was approximately 12-15 hours of word spawned within 5 days.
+![roof photo 11](https://github.com/chertouras/roofrepair/blob/master/WP_20170624_11_39_46_Pro.jpg?raw=true)
+
+
+
+
+
